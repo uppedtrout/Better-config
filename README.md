@@ -24,7 +24,7 @@ the Sunday Express. It concerned testimony by one of the notorious magician's fo
 followers (or, actually, the wife of one of his followers) that Crowley had been
 responsible for the death of her husband, at the Abbey of Thelema, in Cefalu, Sicily. The
 bad press, plus the imagined threat of secret societies, finally forced Mussolini to deport
-the Great Beast from Italy. Tales of horrors filled the pages of the newspapers in EnglandDownloaded from www.holybooks.com
+the Great Beast from Italy. Tales of horrors filled the pages of the newspapers in England
 for weeks and months to come: satanic rituals, black masses, animal sacrifice, and even
 human sacrifice, were reported - or blatantly lied about. For although many of the stories
 were simply not true or fanciful exaggeration, one thing was certain: Aleister Crowley
@@ -62,7 +62,7 @@ vel Legis; the Book of the Law.
 The Mythos and the Magick
 We can profitably compare the essence of most of Lovecraft's short stories with the basic
 themes of Crowley's unique system of ceremonial Magick. While the latter was a
-sophisticated psychological structure, intended to bring the initiate into contact with hisDownloaded from www.holybooks.com
+sophisticated psychological structure, intended to bring the initiate into contact with his
 higher Self, via a process of individuation that is active and dynamic (being brought
 about by the "patient" himself) as opposed to the passive depth analysis of the Jungian
 adepts, Lovecraft's Cthulhu Mythos was meant for entertainment. Scholars, of course, are
@@ -105,7 +105,7 @@ in the Eighth Century, A.D., by a person called the "Mad Arab", Abdhul Alhazred.
 must run roughly 800 pages in length, as there is a reference in one of the stories
 concerning some lacunae on a page in the 700's It had been copied and reprinted in
 various languages - the story goes - among them Latin, Greek and English. Doctor Dee,
-the Magus of Elizabethan fame, was supposed to have possessed a copy and translated it.Downloaded from www.holybooks.com
+the Magus of Elizabethan fame, was supposed to have possessed a copy and translated it.
 This book, according to the mythos, contains the formulae for evoking incredible things
 into visible appearance, beings and monsters which dwell in the Abyss, and Outer Space,
 of the human psyche.
@@ -143,7 +143,7 @@ NECRONOMICON, received in the Middle East in the shadow of the Great Pyramid of
 Gizeh, and therein is writ not only the beauty, but the Beast that yet awaits mankind.
 It would be vain to attempt to deliver a synopsis of Crowley's philosophy, save that its
 'leitmotif' is the Rabelaisian
-Do what thou wilt shall be the whole of the Law.Downloaded from www.holybooks.com
+Do what thou wilt shall be the whole of the Law.
 The actual meaning of this phrase has taken volumes to explain, but roughly it concerns
 the uniting of the conscious Self, a process of individuation which culminates in a rite
 called "Knowledge and Conversation of the Holy Guardian Angel"; the Angel signifying
@@ -179,7 +179,7 @@ which run down from the mountains to the Persian Gulf. This is the site of the f
 of Babylon, as well as of Ur of the Chaldees and Kish, with Nineveh far to the north.
 Each of the seven principal cities of Sumeria was ruled by a different deity, who was
 worshipped in the strange, non-Semitic language of the Sumerians; and language which
-has been closely allied to that of the Aryan race, having in fact many words identical toDownloaded from www.holybooks.com
+has been closely allied to that of the Aryan race, having in fact many words identical to
 that of Sanskrit (and, it is said, to Chinese!).
 For no one knows where the Sumerians came from, and they vanished just as
 mysteriously as they appeared, after the Assyrian invasions which decimated their
@@ -221,7 +221,7 @@ Although a list is appended hereto containing various entities and concepts of L
 Crowley, and Sumeria cross-referenced, it will do to show how the Editor found
 relationships to be valid and even startling. AZATOT is frequently mentioned in the grim
 pages of the Cthulhu Mythos, and appears in the NECRONOMICON as AZAG-THOTH,
-a combination of two words, the first Sumerian and the second Coptic, which gives us aDownloaded from www.holybooks.com
+a combination of two words, the first Sumerian and the second Coptic, which gives us a
 clue as to Its identity. AZAG in Sumerian means "Enchanter" or "Magician"; THOTH in
 Coptic is the name given to the Egyptian God of Magick and Wisdom, TAHUTI, who
 was evoked by both the Golden Dawn and by Crowley himself (and known to the Greeks
@@ -257,7 +257,7 @@ S.H. Hooke, in his excellent Middle Eastern Mythology, tells us that the Leviath
 mentioned in JOB, and elsewhere in the Old Testament, is the Hebrew name given to the
 Serpent TIAMAT, and reveals that there was in existence either a cult, or scattered
 individuals, who worshipped or called up the Serpent of the Sea, or Abyss. Indeed, the
-Hebrew word for Abyss that is found in GENESIS 1:2 is, Hooke tells us, tehom, whichDownloaded from www.holybooks.com
+Hebrew word for Abyss that is found in GENESIS 1:2 is, Hooke tells us, tehom, which
 the majority of scholars take to be a survival of the name of the chaos-dragon TIAMAT
 or Leviathan that is identified closely with KUTULU or Cthulhu within the pages are
 mentioned independently of each other, indicating that somehow KUTULU is the male
@@ -295,7 +295,7 @@ and to the advantage of humanity as was the original intent. The raising of the 
 Power through the circle dancing is probably the simplest method of attaining results in
 "rousing Leviathan", and has been used by societies as diverse as the Dervishes in the
 Middle East and the Python Dancers of Africa, not to mention the round dances that were
-familiar to the Gnostic Christians, and the ones held every year in the past at Chartres.Downloaded from www.holybooks.com
+familiar to the Gnostic Christians, and the ones held every year in the past at Chartres.
 The Witches of today, however, while acknowledging the importance of the Male
 element of telluric Power, generally prefer to give the greater honour to the Female
 Principle, personified as the Goddess. The Goddess has also been worshipped all over the
@@ -333,7 +333,7 @@ when the feast of Lammas takes place), and USTUR being that of Aquarius (Februar
 SED that of Taurus (May) and NATTIG that of Scorpio (November). I do not believe that
 this is a fantastic assumption, the Sumerian origin of the Feast of Lammas. Indeed, it
 seems just as valid as the ideas of Idries Shah concerning Craft etymology as presented in
-his book, The Sufis. It is also not far-fetched to assume that these four beasts were knownDownloaded from www.holybooks.com
+his book, The Sufis. It is also not far-fetched to assume that these four beasts were known
 to the entire region of the Middle East, as they appear on the Sphinx in Egypt, and have
 become the symbols of the Four Evangelists of the Christian New Testament - an ironic
 and splendid result of the ignorance of the Greek religious historians concerning the
@@ -371,7 +371,7 @@ is not well-known. What is worse, the image of the Devil as perpetrated by the C
 simultaneously representative of sexual energy, and can be safely compared to Jung's
 archetype of the Shadow, the psychic repository of a man's innate maleness, as the anima
 represents that part of a man which is feminine. Truly, the pictures painted of a Satanic
-ritual by the pious Catholic clergymen was one of sexual orgies and "perversions", andDownloaded from www.holybooks.com
+ritual by the pious Catholic clergymen was one of sexual orgies and "perversions", and
 the handbook of the Inquisitors, the Malleus Maleficarum - which has been responsible
 for the deaths of many more people than even Hitler's Mein Kampf - is full of detailed
 sexual imagery and reveals the nature of the souls of the monks who wrote it, rather than
@@ -413,7 +413,7 @@ no Sun without the Moon. In alchemy, ceremonial magick, and Witchcraft, the form
 the same, for they all deal with identical properties; whether they are called the Sun and
 Moon of the Elixir Vitae, the male and female participants in a rite of Indian or Chinese
 tantricism, or the Shadow and the Anima of Jungian depth psychology.
-For many years, the Moon remained the prime deity of the Sumerians, constituting theDownloaded from www.holybooks.com
+For many years, the Moon remained the prime deity of the Sumerians, constituting the
 essential Personum of a religious and mystical drama that was performed roughly 3000
 B.C. amid the deserts and marshes of Mesopotamia. Side by side with the worship of the
 Moon, NANNA, there was fear of the Demon, PAZUZU, a genie so amply recreated in
@@ -450,7 +450,7 @@ without the necessary adjunct of Power. This Power has gone by many names, as th
 Goddess and the Devil have, but the Chinese symbolise It by the Dragon. It is the force of
 Will, and relies heavily upon the biochemical matter that makes up the human body, and
 hence, the human consciousness, to give it existence. Science is coming around to accept
-the fact that the Will does exist, just at the point where Psychology has determined it doesDownloaded from www.holybooks.com
+the fact that the Will does exist, just at the point where Psychology has determined it does
 not - in the behaviourists vain attempt to eradicate what has always been known to
 constitute vital parts of the psyche from their consideration in pseudo scientific
 experimentation, leaving us with the "white mice and pigeons" of Koestler's The Ghost In
@@ -491,7 +491,7 @@ Arab saw it all, in a vision, and wrote it down. He was, perhaps, one of the mos
 advanced adepts of his time, and her certainly has something to say to us, today, in a
 language the Intuition understands. Yet they called him "Mad".
 Accompanied in the ranks of the "insane" by such "madmen" as Neitzsche, Artaud, and
-Reich, the Mad Arab makes a Fourth, in a life-and-death game of cosmic bridge. TheyDownloaded from www.holybooks.com
+Reich, the Mad Arab makes a Fourth, in a life-and-death game of cosmic bridge. They
 are all voices crying in that wilderness of madness that men call Society, and as such
 were ostracised, stoned, and deemed mentally unfit for life. But, for them, Justice will
 come when we have realised that the Ship of State and the Ship of St Peter have become
@@ -523,7 +523,7 @@ At a crucial stage in the preparation of the manuscript, the Editor was stricken
 collapsed lung and had to undergo emergency surgery to save his life.
 But, let us proceed with a description of the contents of the NECRONOMICON:
 Within these pages a series of myths and rituals are presented that have survive the
-darkest days of magick and occultism. The exorcisms and bindings of the famous MaqluDownloaded from www.holybooks.com
+darkest days of magick and occultism. The exorcisms and bindings of the famous Maqlu
 text are here presented for the first time in English, although not completely: for the
 originals in their entirety were evidently not known to the author of the
 NECRONOMICON, nor are they to present scholarship; the various tablets upon which
@@ -563,7 +563,7 @@ a score or more of Sumerian researches of the past. The Sumerian origin of many 
 words and place-names we use today provides us with an insight into our own origins.
 For instance, the Sumerian word for the temple is BAR, from which we get our word
 "barrier", or so it is said by Waddell. This makes sense in the context with the erecting
-and maintaining of barriers against the hostile forces Outside.Downloaded from www.holybooks.com
+and maintaining of barriers against the hostile forces Outside.
 The etymology is even dramatic where Magick is concerned, and aids us in understand
 even Crowley's system better than we do. As an example, Crowley of (or Aiwass) ends
 the Book of the Law with the words "AUM.HA." In the Sumero-Aryan Dictionary by
@@ -604,7 +604,7 @@ the Fire God" follows this, and resembles the others in its mixture of Greek and
 phrases. It should be noted here that wherever a Sumerian phrases. It should be noted
 here that wherever a Sumerian phrase appears in the original MS. we have kept it as it is,
 untranslated, as we expect the Mad Arab would have wanted it. Quite possibly, even he
-did not know the exact meaning of much of the conjurations in the Old Tongue, butDownloaded from www.holybooks.com
+did not know the exact meaning of much of the conjurations in the Old Tongue, but
 viewed it as a 'barbarous' tongue' which must be preserved because of its essential Power.
 Indeed, with the publication of this Book, Sumerian may become as popular among
 magicians as the strange, angelic language of Enochian, discovered by Dr. Dee in
@@ -641,7 +641,7 @@ and diagrams to accompany the rites. It is followed by "The Book of Fifty Names"
 fifty separate powers of the God MARDUK, defeater of Chaos. This is interesting, in that
 the names seem to come from the Enuma Elish, in which the Elder Gods confer these
 fifty names upon MARDUK as titles, in their appreciation of his routing of Evil. A sigil
-is given for each of the Names, and a word of Power for most of them.Downloaded from www.holybooks.com
+is given for each of the Names, and a word of Power for most of them.
 Then appears the Centrepiece of the Book, the MAGAN text. The word MAGAN may
 mean the Land of the MAGAN which was said to lie in the West of Sumer. For a time, it
 seems the name MAGAN was synonymous with the Place of Death - as the Sun 'died' in
@@ -673,7 +673,7 @@ was privy to some other-worldly secret that he could not reveal. Perhaps he had 
 the Door by mistake, his own personal Gate to the Abyss, and was forced to cross its
 threshold into the Unknown. We may never know.
 Or, we may wish we never had.
-The Editor New York, New York October 12, 1975Downloaded from www.holybooks.com
+The Editor New York, New York October 12, 1975
 CHART OF COMPARISONS
 (showing some relationships to be found between the mythos of Lovecraft, the
 magick of Crowley, and the faith of Sumer.)
@@ -708,7 +708,7 @@ Numbers for much of his own, familiar, material.
 "The Thing On The Doorstep" in which he refers to a cult leader from England who had
 established a covenstead of sorts in New York. In that story, published in Weird Tales in
 1936, the cult leader is closely identified with chthonic forces, is described as
-"notorious", and linked to the strange fate that befell the protagonist, Edward Derby.)Downloaded from www.holybooks.com
+"notorious", and linked to the strange fate that befell the protagonist, Edward Derby.)
 SUPPLEMENTARY MATERIAL TO
 777
 THE CHART that follows is based on research presently available to the Editor with
@@ -740,7 +740,7 @@ Stars ENKI; LUMASHI (IGIGI)
 18. Cancer SHITTU (SNAKE)
 19. Leo KALBU RABU (LAKHAMU)
 20. Virgo SHIRU (WHIRLWIND)
-21. Jupiter UMUNPADDUDownloaded from www.holybooks.com
+21. Jupiter UMUNPADDU
 22. Libra ZIBANITUM (Ravening Dog)
 23. Water BADUR
 24. Scorpio AKRABU (SCORPION-MAN)
@@ -770,7 +770,7 @@ o
 as in "boat" (but rarely found)
 u
 as in "zulu"
-ConsonantsDownloaded from www.holybooks.com
+Consonants
 Most are basically the same as in English. The Sumerians did not have an alphabet as we
 know it, but they had developed a syllabary, very much like the Japanese "Kana" script of
 today. In phonetic transliterations, the English spelling sought to approximate the
@@ -801,7 +801,7 @@ WHERE POSSIBLE, the Editor has taken every opportunity to find the original
 Sumerian or Akkadian translation of a given Greek charm of conjuration. These will be
 given here. Also, the reader will find English translations of the Sumerian charms as they
 are given in the NECRONOMICON. Not al of the charms are available this way, and
-sometimes we have had to make do with near misses. Much of what is found here hasDownloaded from www.holybooks.com
+sometimes we have had to make do with near misses. Much of what is found here has
 come from the Maklu text, of which the only extant translation is in the German of
 Tallqvist ("Die Assyrische Beschworungsserie Maqlu nach dem originalen im British
 Museum Herausgegeben" Acta Societatis Scientiarum Fennicae, Tomm. XX, No. 6,
@@ -840,7 +840,7 @@ The Conjuration "XILQA XILQA BESA BESA" or "A Most Excellent Charm
 Against the Hordes of Demons" etc.
 Arise! Arise! Go far away! Go far away!
 Be shamed! Be shamed! Flee! Flee!
-Turn around, go, arise and go far away!Downloaded from www.holybooks.com
+Turn around, go, arise and go far away!
 Your wickedness may rise to heaven like unto smoke!
 Arise and leave my body!
 From my body, depart in shame!
@@ -877,7 +877,7 @@ May the mountain hold you in check!
 May the mountain subject you!
 May the mountain cover you!
 May the mighty mountain fall on you,
-May you be held back from my body!Downloaded from www.holybooks.com
+May you be held back from my body!
 (Note: the original translator had noted the resemblance between the Greek word for
 Lors, kurios, and the Sumerian word for mountain, kur, and for a type of underworld,
 chthoic, monster which is also called kur and which refers to the Leviathan of the Old
@@ -908,7 +908,7 @@ Telal Wicked Demon (Warrior)
 Uggae God of Death
 Uruku Larvae
 Utuk Xul Evil Spirit
-Zi Dingir Anna Kanpa! Spirit, God of the Sky, Remember!Downloaded from www.holybooks.com
+Zi Dingir Anna Kanpa! Spirit, God of the Sky, Remember!
 Zi Dinger Kia Kanpa! Spirit, God of the Earth, Remember!
 A WORD CONCERNING THE ORIGINAL
 MANUSCRIPT
@@ -934,7 +934,7 @@ rituals and forces outlined in the NECRONOMICON. In using the material alone, or
 within a Western ceremonial structure (such as the Golden Dawn system) we came upon
 startling discoveries in both cases: there are no effective banishings for the forces
 invoked in the NECRONOMICON itself! The rituals, incantations, formulae of this Book
-are of ancient origin, comprising some of the oldest written magickal workings inDownloaded from www.holybooks.com
+are of ancient origin, comprising some of the oldest written magickal workings in
 Western occult history. the deities and demons identified within have probably not been
 effectively summoned in nearly six thousand years. Ordinary exorcisms and banishing
 formulae have thus far proved extremely inadequate: this, by experienced magicians.
@@ -966,7 +966,7 @@ understood in the West, they just simply represent power sources largely untappe
 thus far ignored by twentieth-century, mainstream consciousness.
 The results of any experimentation with this book, as well as practical suggestions
 concerning its rituals, are welcomed by the publishers.
-BIBLIOGRAPHY & SUGGESTED READING LISTDownloaded from www.holybooks.com
+BIBLIOGRAPHY & SUGGESTED READING LIST
 (by no means complete, but representative. alphabetically by author)
 Name Book Published
 Bernhard,
@@ -1011,7 +1011,7 @@ Sumerian Mythology Pennsylvania,
 1972
 Laurent La Magie et la Divination chez les Chaldeo-
 Assyriennes Paris, 1894
-Lenormant, F. Science Occult; La Magie chez les Chaldeens Paris, 1874Downloaded from www.holybooks.com
+Lenormant, F. Science Occult; La Magie chez les Chaldeens Paris, 1874
 Tales of the Cthulhu Mythos New York, 1973
 At The Mountains of Madness New York, 1973
 The Dunwich Horror New York, 1963Lovecraft, H.P.
@@ -1048,7 +1048,7 @@ Prophets lived much longer. I am weak, and ill, and bear a great tiredness and e
 and a sigh hangs in my breast like a dark lantern. I am old.
 The wolves carry my name in their midnight speeches, and that quiet, subtle Voice is
 summoning me from afar. And a Voice much closer will shout into my ear with unholy
-impatience. The weight of my soul will decide its final resting place. Before that time, IDownloaded from www.holybooks.com
+impatience. The weight of my soul will decide its final resting place. Before that time, I
 must put down here all that I can concerning the horrors that stalk Without, and which lie
 in wait at the door of every man, for this is the ancient arcana that has been handed down
 of old, but which has been forgotten by all but a few men, the worshippers of the Ancient
@@ -1084,7 +1084,7 @@ were destroyed because of the knowledge contained in this book.
 I have traveled among the stars, and trembled before the Gods. I have, at last, found the
 formulae by which I passed the Gate ARZIR, and passed into the forbidden realms of the
 foul IGIGI.
-I have raised demons, and the dead.Downloaded from www.holybooks.com
+I have raised demons, and the dead.
 I have summoned the ghosts of my ancestors to real and visible appearance on the tops of
 temples built to reach the stars, and built to touch the nethermost cavities of HADES. I
 have wrestled with the Black Magician, AZAG-THOTH, in vain, and fled to the Earth by
@@ -1123,7 +1123,7 @@ exhibit the least fright.
 I could see clearly now that the three carvings on the stone monument were glowing a
 flame red colour, as though the rock were on fire. The figures were murmuring together
 in prayer or invocation, of which only a few words could be heard, and these in some
-unknown tongue; though, ANU have mercy on my soul!, these rituals are not unknown toDownloaded from www.holybooks.com
+unknown tongue; though, ANU have mercy on my soul!, these rituals are not unknown to
 me any longer.
 The figures, whose faces I could not see or recognise, began to make wild passes in the
 air with knives that glinted cold and sharp in the mountain night.
@@ -1160,7 +1160,7 @@ of life or bodies beneath them.
 I walked cautiously to the first and, picking up a long twig, lifted the robe from the tangle
 of weeds and thorns. All that remained of the priest was a pool of slime, like green oil,
 and the smell of a body lain long to rot in the sun. Such a stench nearly overpowered me,
-but I was resolute to find the others, to see if the same fortune had also befallen them.Downloaded from www.holybooks.com
+but I was resolute to find the others, to see if the same fortune had also befallen them.
 Walking back up the slope that I had so fearfully run down only moments ago, I came
 across yet another of the dark priests, in identical condition to the first. I kept walking,
 passing more of the robes as I went, not venturing to overturn them any longer. Then, I
@@ -1179,7 +1179,7 @@ KUTULU.
 In that moment, as though whispered fiercely into my ear, I understood.
 These are the signs carved upon the grey stone, that was the Gate to the Outside:
 An this is the amulet that I held in my hand, and hold to this very day, around my neck as
-I write these words:Downloaded from www.holybooks.com
+I write these words:
 Of the three carved symbols, the first is the sign of our Race from beyond the Stars, and
 is called ARRA in the tongue of the Scribe who taught it to me, an emissary of the Elder
 Ones. In the tongue of the eldest city of Babylon, it was UR. It is the Sigil of the
@@ -1201,7 +1201,7 @@ others, for the Watcher must needs be reminded of the Covenant it has sworn with
 Elder Gods and our Race, else it will turn upon thee and slay thee and ravage thy town
 until succour is to be had from the Elder Gods by the tears of thy people and the wailing
 of thy women.
-KAKAMMU!Downloaded from www.holybooks.com
+KAKAMMU!
 The metal amulet that I retrieved from the ashes of the fire, and which caught the light of
 the moon, is a potent seal against whatever may come in the Gate from the Outside for,
 seeing it, they will retreat from thee
@@ -1239,7 +1239,7 @@ convince some learned man that I was a sincere scholar, and was thereby permitte
 read the ancient records in which the details of necromancy. sorcery, magick and
 alchemy are given. I learned of the spells that cause men illness, the plague, blindness,
 insanity, and even death. I learned of the various classes of demons and evil gods that
-exist, and of the old legends concerning the Ancient Ones. I was thus able to arm myselfDownloaded from www.holybooks.com
+exist, and of the old legends concerning the Ancient Ones. I was thus able to arm myself
 against also the she-devil LAMMASHTA, who is called the Sword that Splits the Skull,
 the sight of whom causeth horror and dismay, and(some say) death of a most uncommon
 nature.
@@ -1279,7 +1279,7 @@ it by one line or dot, not so much as a hair's breadth, lest it be rendered valu
 worse: a broken star is the Gate of GANZIR, the Gate of Death, the Gate of the Shadows
 and the Shells. Recite the incantations as they are written here, in the manner this
 prescribed. Prepare the rituals without erring, and in the proper places and times render
-the sacrifices.Downloaded from www.holybooks.com
+the sacrifices.
 May the Gods be ever merciful unto thee!
 May thou escape the jaws of the MASKIM, and vanquish the power of the Ancient Ones!
 AND THE GODS GRANT THEE DEATH
@@ -1307,7 +1307,7 @@ The God of the Moon is the God NANNA. He is Father of the Zonei, and the Eldest 
 the Wanderers. He is long of beard, and bears a wand of lapis lazuli in his palm, and
 possesses the secret of the tides of blood. His colour is Silver. His Essence is to be found
 in Silver, and in camphor, and in those things bearing the sign of the Moon. He is
-sometimes called SIN. His Gate is the first you will pass in the rituals that follow. HisDownloaded from www.holybooks.com
+sometimes called SIN. His Gate is the first you will pass in the rituals that follow. His
 Step on the Ladder of Lights is also Silver.
 This is his Seal, which you must engrave on his metal, on the thirteenth day of the Moon
 in which you are working, having no other person about you who may watch you in its
@@ -1327,7 +1327,7 @@ palm tree, having no other person about you who may watch you in its constructio
 Being finished, it should be wrapped in a square of the finest silk and lain aside until such
 time as you desire its use, and then, it should be removed only when its light is in the sky.
 Such is also the best time for its manufacture.
-The Number of NEBO is Twelve and this is his Seal:Downloaded from www.holybooks.com
+The Number of NEBO is Twelve and this is his Seal:
 The Goddess of Venus is the most excellent Queen INANNA, called of the Babylonians
 ISHTAR. She is the Goddess of Passion, both of Love and of War, depending upon her
 sign and the time of her appearance in the heavens. She appears as a most beautiful Lady,
@@ -1349,7 +1349,7 @@ most beautiful flowers of a field, and in the saddest death of the battlefield, 
 field's fairest flower. Her Gate is the Third you will pass in the rites that follow, and in
 which place you will be of a heart to stay; but turn you face to the road that leads beyond,
 for that is your genuine goal, unless the Goddess choses you. Her Step on the Ladder of
-Lights, built of old in Babylon and at UR, is White.Downloaded from www.holybooks.com
+Lights, built of old in Babylon and at UR, is White.
 This is her Seal, which you must engrave on Copper, Venus being exalted in the
 Heavens, with no one about watching its construction. Being finished, it is to be wrapped
 in the purest silk and lain safely away, only to be removed when need arises, at any time.
@@ -1365,7 +1365,7 @@ This is his Seal, which you must engrave in gold, when the Sun is exalted in the
 alone on a mountain top or some such place close to the Rays, but alone. Being finished,
 it should be wrapped in a square of the finest silk and lain aside until such time as it is
 needed.
-The Number os SHAMMASH is Twenty and this is his Seal:Downloaded from www.holybooks.com
+The Number os SHAMMASH is Twenty and this is his Seal:
 The God of Mars is the mighty NERGAL.
 He has the head of a man on the body of a lion, and bears a sword and a flail. He is the
 God of War, and of the fortunes of War. He was sometimes though to be an agent of the
@@ -1378,7 +1378,7 @@ Mars is in exaltation in the heavens. It is best done at night, far from the hab
 men and of animals, where you cannot be seen or heard. It must be wrapped first in heavy
 cloth, then in fine silk, and hid safe away until such times as it is needed. But to take not
 to use this Seal hastily, for it is a sharp Sword.
-The Number of NERGAL is Eight and this is his Seal:Downloaded from www.holybooks.com
+The Number of NERGAL is Eight and this is his Seal:
 The God of Jupiter is the Lord of Magicians, MARDUK KURIOS of the Double-headed
 Axe. MARDUK was born of our Father, ENKI, to do battle against the forces of the
 Ancient Ones, and he won a powerful fight, subduing the armies of Evil and putting the
@@ -1396,7 +1396,7 @@ keeping the Watch. Take care to summon his assistance in only the most terrible 
 circumstances, for his might is powerful and his anger fierce. When thou hast need of the
 power of the star Jupiter, call instead one of the appropriate Powers listed within these
 pages, and they will surely come.
-The Number of Marduk is Ten and this is his Seal:Downloaded from www.holybooks.com
+The Number of Marduk is Ten and this is his Seal:
 The God of Saturn is NINIB called ADAR, the Lord of Hunters and of Strength. He
 appears with a crown of horns and a long sword, wearing a lion's skin. he is the final
 Zonei before the terrible IGIGI. His colour is the darkest black. His Essence is to be
@@ -1410,7 +1410,7 @@ after the night has fallen and the earth grown black, for NINIB knows the best t
 of the demons that prowl among the shadows, looking for sacrifice. he knows best the
 territories of the Ancient Ones, the practices of their worshippers, and the locations of the
 Gates. His realm is the realm of the Night of Time.
-His Number is Four, as the quarters of the Earth, and the following is his Seal:Downloaded from www.holybooks.com
+His Number is Four, as the quarters of the Earth, and the following is his Seal:
 THE BOOK OF ENTRANCE, AND OF THE WALKING
 THE BOOK OF ENTRANCE
 THIS is the Book of Entrance to the Seven Zones above the Earth, which Zones were
@@ -1427,7 +1427,7 @@ Covenant; else thou art surely lost.
 Know that thou must keep purified for the space of one moon for the Entrance to the first
 Step, one moon between the First and the Second Step, and again between the Second
 and the Third, and so on in like manner. Thou must abstain from spilling thy seed in any
-manner for like period of time, but thou mayest worship at the Temple of ISHTAR,Downloaded from www.holybooks.com
+manner for like period of time, but thou mayest worship at the Temple of ISHTAR,
 provided thou lose not thine Essence. And this is a great secret.
 Thou must needs call upon thy God in the dawn light and upon thy Goddess in the light
 of dusk, every day of the moon of purification. Thou must summon thy Watcher and
@@ -1448,18 +1448,18 @@ should be pure, with no odour, or else sweet-smelling. The perfumes in the brazi
 also be sweet-smelling, or especially appropriate to the Star where thou wouldst desire
 Entrance, after the fashion of thy country.
 The Seven Gates here follow:
-THIS IS THE FIRST GATE THE GATE OF NANNA, CALLED SIN:Downloaded from www.holybooks.com
+THIS IS THE FIRST GATE THE GATE OF NANNA, CALLED SIN:
 THIS IS THE SECOND GATE, OF NEBO:
 THIS IS THE THIRD GATE, OF INANNA CALLED ISHTAR:
-THIS IS THE FOURTH GATE, OF SHAMMASH, CALLED UDDU:Downloaded from www.holybooks.com
+THIS IS THE FOURTH GATE, OF SHAMMASH, CALLED UDDU:
 THIS IS THE FIFTH GATE, OF NERGAL:
-THIS IS THE SIXTH GATE, OF LORD MARDUK:Downloaded from www.holybooks.com
+THIS IS THE SIXTH GATE, OF LORD MARDUK:
 THIS IS THE SEVENTH GATE, OF NINIB, CALLED ADAR:
 And the Ritual of the Walking must follow the formulae herein described:
 First, thou must observe the moon of purification. In this time, thou mayest not eat meat
 for the space of seven days preceding the last day of the moon, and for the space of three
 days preceding the last dat of the moon thou mayest not eat anything whatsoever, save to
-drink sweet water. On the last three days, thou must invoke, in addition to thy God andDownloaded from www.holybooks.com
+drink sweet water. On the last three days, thou must invoke, in addition to thy God and
 Goddess, the Three Great Elder Ones, ANU, ENLIL, ENKI, by their proper invocations.
 And the Number of ANU is Sixty, the Perfect Number, for he is Father of the Heavens.
 And the Number of ENLIL is Fifty, and he is the Father of the Wind. And the Number of
@@ -1495,7 +1495,7 @@ amid thine Temple. That which has been moving about thy Gate on the ground will 
 gone. Recite thine thanksgiving to the Gods upon thine altar, strike the Sword of the
 Watcher that It may depart, and give the incantation of INANNA which say how she
 conquered the realm of the Underworld and vanquisheth KUTULU. All Idimmu will
-vanish thereby and thou wilt be thus free to depart the Gate and extinguish the Fire.Downloaded from www.holybooks.com
+vanish thereby and thou wilt be thus free to depart the Gate and extinguish the Fire.
 Thou mayest not call upon NANNA till thou hast passed the Gate of NANNA. Thou
 mayest not call NEBO until his Gate hast thou passed. Similarly for the rest of the Gates.
 When thou hast ascended to the limit of the Ladder of Lights, thou wilt have knowledge
@@ -1539,7 +1539,7 @@ mastery is acquired over the powers that reside Within. Only when ADAR has been
 obtained, may the Priest consider himself a master of the planes of the Spheres, and able
 to wrestle with the Old Gods. Once Death Herself has been stared in the Eye, can the
 Priest then summon and control the denizens of Death's darkly curtained halls. Then can
-he hope to open the Gate without fear and without that loathing of the spirit that slays theDownloaded from www.holybooks.com
+he hope to open the Gate without fear and without that loathing of the spirit that slays the
 man.
 Then cane he hope to have power over the demons that plague the mind and the body,
 pulling at the hair and grasping at the hands, and the screaming vile Names into the airs
@@ -1572,7 +1572,7 @@ BASTAMAAGANASTA IA KIA KANPA!
 MAGABATHI-YA NANNA KANPA!
 MASHRITA NANNA ZIA KANPA!
 IA MAG! IA GAMAG! IA ZAGASTHENA KIA!
-ASHTAG KARELLIOSH!Downloaded from www.holybooks.com
+ASHTAG KARELLIOSH!
 THE INVOCATION OF THE NEBO GATE
 Spirit of the Swift Planet, Remember!
 NEBO, Custodian of the Gods, Remember!
@@ -1611,7 +1611,7 @@ Lady, Mistress of Battle and of Love, I pray Thee, Remember!
 In the Name of the Covenant, sworn between Thee and the Race of Men,
 I call to Thee! Hearken and Remember!
 Suppressor of the Mountains!
-Supporter of arms!Downloaded from www.holybooks.com
+Supporter of arms!
 Deity of Men! Goddess of Women! Where Thou gazest, the Dead live!
 ISHTAR, Queen of Night, Open Thy Gate to me!
 ISHTAR, Lady of the Battle, Open wide Thy Gate!
@@ -1649,7 +1649,7 @@ ZI DINGIR UDDU-YA KANPA! ZI DINGIR USHTU-YA KANPA!
 ZI SHTA! ZI DARAKU! ZI BELURDUK!
 KANPA! IA SHTA KANPA! IA!
 THE INVOCATION OF THE NERGAL GATE
-Spirit of the Red Planet, Remember!Downloaded from www.holybooks.com
+Spirit of the Red Planet, Remember!
 NERGAL, God of War, Remember!
 NERGAL, Vanquisher of Enemies, Commander of Hosts, Remember!
 NERGAL, Slayer of Lions and of Men, Remember!
@@ -1691,7 +1691,7 @@ From the Gate of the Mighty NERGAL, the Sphere of the Red Planet,
 I call to Thee! Hearken and Remember!
 MARDUK, Lord of the Fifty Powers, Open Thy Gates to me!
 MARDUK, God of Fifty Names, Open Thy Gates to Thy Servant!
-By the Name which I was given on the Sphere of NERGAL, I call to Thee to Open!Downloaded from www.holybooks.com
+By the Name which I was given on the Sphere of NERGAL, I call to Thee to Open!
 Gate of the Great God, Open!
 Gate of the God of the Double-Headed Axe, Open!
 Gate of the Lord of the World Between the Worlds, Open!
@@ -1730,7 +1730,7 @@ IA DUK! IA ANDARRA! IA ZI BATTU BA ALLU!
 BALLAGU BEL DIRRIGU BAAGGA KA KANPA!
 BEL ZI EXA EXA!
 AZZAGBAT! BAZZAGBARRONIOSH!
-ZELIG!Downloaded from www.holybooks.com
+ZELIG!
 THE CONJURATION OF THE FIRE GOD
 Spirit of the Fire, Remember!
 GIBIL, Spirit of the Fire, Remember!
@@ -1761,7 +1761,7 @@ THIS is the Book of the Conjuration of the Watcher, for formulae as I received t
 from the Scribe of ENKI, Our Master and Lord of All Magick. Great care must be taken
 that this untamed Spirit does not rise up against the Priest, and for that reason a
 preliminary sacrifice must be made in a clean and new bowl with the appropriate sigils
-inscribed thereupon, being the three grey carven signs of the Rock of my initiation, whichDownloaded from www.holybooks.com
+inscribed thereupon, being the three grey carven signs of the Rock of my initiation, which
 are:
 They must be engraved upon the bowl with a fine stylus, or painted thereon with dark
 ink. The sacrifice must be new bread, pine resin, and the grass Olieribos. These must be
@@ -1788,7 +1788,7 @@ their Council, like unto the Seven Glorious APHKHALLU.
 And sometimes the Watcher appears as the Enemy, ready to devour the Priest who has
 erred in the incantations, or omitted the sacrifice, or acted in defiance of the Covenant,
 for which acts the very Elder Gods cannot forbid that silent Race from exacting its toll.
-And it is said that some of that Race lie waiting for the Ancient Ones to once more ruleDownloaded from www.holybooks.com
+And it is said that some of that Race lie waiting for the Ancient Ones to once more rule
 the Cosmos, that they may be given the right hand of honour, and that such as these are
 lawless. This is what is said.
 THE PRELIMINARY INVOCATION
@@ -1821,7 +1821,7 @@ summon the Watcher to preside over the outer precincts of the Circle or Gate. Th
 is to be thrust into the ground as before, in the Northeast section, but the AGA MASS
 SSARATU is not necessary LEST THOU HAST NOT MADE SACRIFICE TO THINE
 WATCHER IN THE SPACE OF ONE MOON in which case it is necessary to sacrifice
-to It anew whether in that Ceremony or at some other, earlier.Downloaded from www.holybooks.com
+to It anew whether in that Ceremony or at some other, earlier.
 Raise the Copper Dagger of INANNA of the Calling, and declaim the Invocation in a
 clear voice, be it loud or soft:
 IA MASS SSARATU!
@@ -1854,7 +1854,7 @@ such time as he is given the license to depart by striking of the Priest's left 
 hilt of the Sword, while pronouncing the formula BARRA MASS SSARATU! BARRA!
 Thou mayest not depart thine sacred precincts until the Watcher has been given this
 license, else he will devour thee. Such are the laws.
-And he care not what he Watches, only that he obey the Priest.Downloaded from www.holybooks.com
+And he care not what he Watches, only that he obey the Priest.
 THE BOOK MAKLU OF THE BURNING OF EVIL
 SPIRITS
 HERE are the Banishments, the Burnings, and the Bindings handed down to us by ENKI,
@@ -1888,7 +1888,7 @@ I have put the Starry Crown of Heaven, the potent Disk of ANU on my head
 That a kindly Spirit and a kindly Watcher
 Like the God that hath made me
 May stand at my head always
-To life me to favour with the Elder GodsDownloaded from www.holybooks.com
+To life me to favour with the Elder Gods
 UDUGGHUL
 ALLACHUL
 MALLACHUL
@@ -1930,7 +1930,7 @@ They beget not children
 They are strangers to charity
 They ignore prayers
 They scoff at wishes
-They are vermin that come forth from the Mountains of MASHUDownloaded from www.holybooks.com
+They are vermin that come forth from the Mountains of MASHU
 Enemies of Our Master ENKI
 They are the vengeance of the Ancient Ones
 Raising up difficulties
@@ -1968,7 +1968,7 @@ MASQIM XUL EDIN NA ZU!
 BARRA!
 EDINNAZU!
 ZI ANNA KANPA! ZI KIA KANPA!
-THE EXORCISM ZI DINGIRDownloaded from www.holybooks.com
+THE EXORCISM ZI DINGIR
 (To be used against any kind of malefick)
 ZI DINGIR NNGI E NE KANPA
 ZI DINGIR NINGI E NE KANPA
@@ -2007,7 +2007,7 @@ I deliver you to GIRRA
 Lord of the Flames
 Who sears, burns, enchains
 Of whom even mighty KUTULU has fear!
-May GIRRA, the Ever-burning One gives strenght to my arms!Downloaded from www.holybooks.com
+May GIRRA, the Ever-burning One gives strenght to my arms!
 May GIBIL, the Lord of Fire, givepower to my Magick!
 Injustice, murder, freezing of the loins,
 Rending of the bowels, devouring of the flesh, and madness
@@ -2045,7 +2045,7 @@ They are the flood which rusheth through the Land
 Seven Gods of the Broad Heavens
 Seven Gods of the Broad Earth
 Seven Ancient Ones are They
-Seven Gods of MightDownloaded from www.holybooks.com
+Seven Gods of Might
 Seven Evil Gods
 Seven Evil Demons
 Seven Demons of Oppression
@@ -2083,7 +2083,7 @@ Ipushu
 Shupi yi arkhish Uppu yush!
 ZI DINGIR GAL KESHSHEBA KANPA!
 (This to be recited Seven times in the Circle of Flour before the AGA MASS SSARATU
-when it is found that the worshippers of TIAMAT are raising Powers against thee or thyDownloaded from www.holybooks.com
+when it is found that the worshippers of TIAMAT are raising Powers against thee or thy
 neighbourhood. Or, it may said when the Great Bear is suspended from his Tail in the
 Heavens, which is the Time the baneful worshippers gather for their Rites, and by which
 they mark their calendar. The mercy of ANU be upon thee!)
@@ -2121,7 +2121,7 @@ SPIRIT OF THE SKY, REMEMBER!
 SPIRIT OF THE EARTH, REMEMBER!
 NINNKIGAL, Spouse of NINNAZU
 May she cause him to turn his face toward the Place where she is!
-May the wicked Demons depart!Downloaded from www.holybooks.com
+May the wicked Demons depart!
 May they seize one another!
 May they feed on one another's bones!
 SPIRIT OF THE SKY, REMEMBER!
@@ -2157,7 +2157,7 @@ I invoke you, Gods of the Night
 Together with you I call to the Night, to the Covered Woman
 I call in the Evening, at Midnight, and in the Morning
 Because they have enchanted me
-The sorcerer and the sorceress have bound meDownloaded from www.holybooks.com
+The sorcerer and the sorceress have bound me
 My God and my Goddess cry over me.
 I am plagued with pain because of illness.
 I stand upright, I cannot lie down
@@ -2194,7 +2194,7 @@ My images have you struck down on doorsteps; turn back!
 My images have you locked into the gate of wall; turn back!
 My images have you given over to the God of Fire; turn back!
 A MOST EXCELLENT CHARM AGAINST THE HORDES OF DEMONS
-THAT ASSAIL IN THE NIGHTDownloaded from www.holybooks.com
+THAT ASSAIL IN THE NIGHT
 (May be chanted while walking around the circumference of the Circle, and sprinkling
 the vicinity with sweet water, using a pine cone or golden brush. An image of a Fish may
 be at hand, and the incantation pronounced clearly, every word, either whispered softly,
@@ -2232,7 +2232,7 @@ SHADU YU LINI KUNUSHI
 SHADU YU LINIR KUNUSHI
 SHADU YU LIKATTIN KUNUSHI
 SHADU YU DANNU ELIKUNU LIMQUT
-INA ZUMRI YA LU YU TAPPARRASAMA!Downloaded from www.holybooks.com
+INA ZUMRI YA LU YU TAPPARRASAMA!
 THE BOOK OF CALLING
 THIS is the Book of the Ceremonies of Calling, handed down since the time the Elder
 Gods walked the Earth, Conquerors of the Ancient Ones.
@@ -2267,7 +2267,7 @@ the Magick Number, the Magick Word, the Magick Shape. So, therefore, the Priest 
 governeth the works of Fire, and of the God of Fire, GISHBAR called GIBIL, must
 firstly sprinkle with the Water of the Seas of ENKI, as a testament to his Lordship and a
 sign of the Covenant that exists between him and thee.
-Know, thirdly, that by the Power of the Elder Gods and the submission of the AncientDownloaded from www.holybooks.com
+Know, thirdly, that by the Power of the Elder Gods and the submission of the Ancient
 Ones, thou mayest procure every type of honour, dignity, wealth and happiness, but that
 these are to be shunned as the Purveyors of Death, for the most radiant jewels are to be
 found buried deep in the Earth, and the Tomb of Man is the Splendour of
@@ -2305,7 +2305,7 @@ they are the words of the Pacts made of Old, and before Time. So, say them softl
 formula is "softly", or shout them aloud if the formula is "aloud", but change not one
 measure lest thou call something Else, and it be your final hour.
 Know, seventhly, of the Things thou art to expect in the commission of this Most sacred
-Magick. Study the symbols well, and do not be afraid of any awful spectre that shallDownloaded from www.holybooks.com
+Magick. Study the symbols well, and do not be afraid of any awful spectre that shall
 invade thine operation, or haunt thine habitat by day or by night. Only charge them with
 them the words of the Covenant and they will do as you ask, of thou be strong. And if
 thou performest these operations often, thou shalt see things becoming dark; and the
@@ -2322,7 +2322,7 @@ Which thou shalt wear at all times, as the Sign of the Covenant between thee and
 Elder Gods. And the Sign of the Elder Ones is this:
 Which thou shalt wear at all times, as the sign of the Power of the Magick of ENKI. And
 I have told thee all this before, but I tell thee again, for the Priest, being furnished with
-every kind of Armour, and armed, he is similar to the Goddess.Downloaded from www.holybooks.com
+every kind of Armour, and armed, he is similar to the Goddess.
 The Place of Calling shall be high in the Mountains, most preferably; or near the Sea; or
 in some secluded area far from the thoughts of Man; or in the desert; or atop an ancient
 temple. And it shall be clean, and free from the unwanted. Thus, the Place, once chosen,
@@ -2358,7 +2358,7 @@ And the Crown of Calling shall bear the Eight-Rayed Star of the Elder Gods, and 
 of beaten copper, set in with precious stones.
 And thou shalt bear with thee a Rod of lapis lazuli, the Five-Rayed Star about thy neck,
 the Frontlet, the Girdle, the Amulet of UR about thine Arm, and a pure and unspotted
-Robe.Downloaded from www.holybooks.com
+Robe.
 And these things shall be worn for the Operations of Calling only, and at other times shall
 be put away and hid, so that no eye may see them, save your own. As for the worship of
 the Gods, it is after the fashion of your country, but the Priests of Old were naked in their
@@ -2393,7 +2393,7 @@ Invocation of the Eastern Gate
 Thee I invoke, Mistress of the Rising Star.
 Queen of Magick, of the Mountains of MASHU!
 Thee I call forth this day to guard this Most Holy mandal against the Seven Ensnarers,
-the Seven Liers-In-Wait, the evil Maskim, the Evil Lords!Downloaded from www.holybooks.com
+the Seven Liers-In-Wait, the evil Maskim, the Evil Lords!
 Thee I Summon, Queen of the Eastern Ways, that thou mayest protect me from the Eye
 of Death, and the evil rays of the ENDUKUGGA and NINDUKUGGA!
 Be watchful, Queen of the Eastern Ways, and Remember!
@@ -2427,7 +2427,7 @@ From the Baneful Look, the Baneful Word, the Baneful Name, the Baneful Number, t
 Baneful Shape, protect me!
 Be watchful, Spirit of the Western Ways, and Remember!
 Spirit of the West Gate, Remember!
-The Invocation of the Four GatesDownloaded from www.holybooks.com
+The Invocation of the Four Gates
 MER SIDI!
 MER KURRA!
 MER URULU!
@@ -2465,7 +2465,7 @@ the Gate that I may enter!
 Open, lest I attack the Gate!
 Open, lest I break down its bars!
 Open, lest I attack the Walls!
-Open, lest I leap over It by force!Downloaded from www.holybooks.com
+Open, lest I leap over It by force!
 Open the Gate, lest I cause the Dead to rise and devour the Living!
 Open the Gate, lest I give the Dead power over the Living!
 Open the Gate, lest I make the Dead to outnumber the Living!
@@ -2496,7 +2496,7 @@ THE GREAT CONJURATION OF ALL THE POWERS
 SPIRIT OF THE SKY, REMEMBER!
 SPIRIT OF THE EARTH, REMEMBER!
 Spirits, Lords of the Earth, Remember!
-Spirits, Ladies of the Earth, Remember!Downloaded from www.holybooks.com
+Spirits, Ladies of the Earth, Remember!
 Spirits, Lords of the Air Remember!
 Spirits, Ladies of the Air, Remember!
 Spirits, Lords of the Fire, Remember!
@@ -2538,7 +2538,7 @@ SPIRIT OF THE EARTH, REMEMBER!
 AMANU!
 AMANU!
 AMANU!
-Here endeth the Great Conjuration.Downloaded from www.holybooks.com
+Here endeth the Great Conjuration.
 THE CONJURATION OF IA ADU EN I
 (A great Mystical Conjuration)
 IA IA IA!
@@ -2575,7 +2575,7 @@ will come to know in the course of your experiments. There are many others, but 
 have no power, and will only confuse.
 The best Spirits to summon in the early Rites are the Fifty Spirits of the Names of Lord
 MARDUK who give excellent attendance and who are careful Watchers of the Outside.
-They should not be detained any longer than is necessary, and some are indeed violentDownloaded from www.holybooks.com
+They should not be detained any longer than is necessary, and some are indeed violent
 and impatient natures, and their task is to be given in as short a time as possible, and then
 they are to be released.
 After these, the Spirits of the seven Spheres may be invoked to advantage, after the Priest
@@ -2606,7 +2606,7 @@ SHAZIGA BARA YE
 ZIGASHUBBA NA AGSISHAMAZIGA
 NAMZA YE INNIN DURRE ESH AKKI
 UGU AGBA ANDAGUB!
-To Recover PotencyDownloaded from www.holybooks.com
+To Recover Potency
 (Tie thee knots in a harp string; entwine around both right and left hands, and chant the
 following incantation seven times, and potency will return.)
 LILLIK IM LINU USH KIRI
@@ -2615,14 +2615,14 @@ NI YISH LIBBI IA LU AMESH ID GINMESH
 ISHARI LU SAYAN SAYAMMI YE
 LA URRADA ULTU MUXXISHA!
 THE CROWN OF ANU OF CALLING
-THE FRONTLET OF CALLINGDownloaded from www.holybooks.com
+THE FRONTLET OF CALLING
 THE COPPER DAGGER OF INANNA OF CALLING
-THE SEAL OF THE NORTH GATEDownloaded from www.holybooks.com
+THE SEAL OF THE NORTH GATE
 THE SEAL OF THE EAST GATE
-THE SEAL OF THE SOUTH GATEDownloaded from www.holybooks.com
+THE SEAL OF THE SOUTH GATE
 THE SEAL OF THE WEST GATE
-ONE TYPE OF MANDAL OF CALLINGDownloaded from www.holybooks.com
-ANOTHER TYPEDownloaded from www.holybooks.com
+ONE TYPE OF MANDAL OF CALLING
+ANOTHER TYPE
 THE BOOK OF FIFTY NAMES
 THE BOOK OF FIFTY NAMES OF MARDUK, DEFEATER OF THE ANCIENT
 ONES
@@ -2658,7 +2658,7 @@ The Fifty Names here follow, with their Signs and Powers. They may be summoned a
 the Priest has ascended to that step on the Ladder of Lights and gained entrance to that
 Sacred City. The Signs should be engraved on parchment or sealed in clay and placed
 upon the altar at the Calling. And in the perfumes should be of cedar, and strong, sweet-
-smelling resins. And the Calling be to the North.Downloaded from www.holybooks.com
+smelling resins. And the Calling be to the North.
 The First Name is MARDUK
 The Lord of Lords, master of Magicians. His Name should not be called except when no
 other will do, and it is the most terrible responsibility to do so. The Word of His Calling
@@ -2670,7 +2670,7 @@ clean of heart and spirit, for this Spirit shall know his innermost thoughts. Th
 Seal:
 The Third Name is MARUTUKKU
 Master of the Arts of Protection, chained the Mad God at the Battle. Sealed the Ancient
-Ones in their Caves, behind the Gates. Possesses the ARRA star. This is his Seal:Downloaded from www.holybooks.com
+Ones in their Caves, behind the Gates. Possesses the ARRA star. This is his Seal:
 The Fourth Name is BARASHAKUSHU
 Worker of Miracles. The kindest of the Fifty, and the most beneficent. The Word used at
 his Calling is BAALDURU. This is his Seal:
@@ -2681,7 +2681,7 @@ used at his Calling is BANUTUKKU. This is his Seal:
 The Sixth Name is NARILUGGALDIMMERANKIA
 The Watcher of the IGIGI and the ANNUNAKI, Sub-Commander of the Wind Demons.
 He will put to flight any maskim who haunt thee, and is the foe of the rabisu. None may
-pass into the World Above or the World Below without his knowledge. His Word isDownloaded from www.holybooks.com
+pass into the World Above or the World Below without his knowledge. His Word is
 BANRABISHU. His Seal is thus:
 The Seventh Name is ASARULUDU
 Wielder of the Flaming Sword, oversees the Race of Watchers at the bidding of the Elder
@@ -2691,7 +2691,7 @@ The Eighth Name is NAMTILLAKU
 A most secret and potent Lord, he hath knowledge to raise the dead and converse with the
 spirits of the Abyss, unbeknownst to their Queen. No soul passes into Death but that he is
 aware. His word is BANUTUKUKUTUKKU and his Seal is thus:
-The Ninth Name is NAMRUDownloaded from www.holybooks.com
+The Ninth Name is NAMRU
 Dispenses wisdom and knowledge in all things. Giveth excellent counsel and teaches the
 science of metals. His word is BAKAKALAMU and his Seal:
 The Tenth Name is ASARU
@@ -2701,7 +2701,7 @@ His Word is BAALPRIKU and his Seal follows:
 The Eleventh Name is ASARUALIM
 Possesses secret wisdom, and shines Light in the Darkened areas, forcing what lives there
 to give good accounting of its existence and its knowledge. Giveth excellent counsel in
-all things. His word is BARRMARATU and the Seal which thou engrave is thus:Downloaded from www.holybooks.com
+all things. His word is BARRMARATU and the Seal which thou engrave is thus:
 The Twelfth Name is ASARUALIMMUNNA
 This is the Power that presideth over armour of all kinds and is excellently
 knowledgeable in military matters, being of the advance army of MARDUK at that
@@ -2713,7 +2713,7 @@ and Protector of the Household, his Word is DIRRIGUGIM and his Seal is this:
 The Fourteenth Name is ZIUKKINNA
 Giveth excellent knowledge concerning the movements of the stars and the meanings
 thereof, of which the Chaldaens possessed this same knowledge in abundance. The Word
-is GIBBILANNU and the Seal is this:Downloaded from www.holybooks.com
+is GIBBILANNU and the Seal is this:
 The Fifteenth Name is ZIKU
 This Power bestoweth Riches of all kinds, and can tell where treasury is hidden. Knower
 of the Secrets of the Earth. His Word is GIGGIMAGANPA and his Seal is this:
@@ -2723,7 +2723,7 @@ of the Amulet and the Talisman. His Word is MASHGARZANNA and his Seal is this:
 The Seventeenth Name is TUKU
 Lord of Baneful Magick, Vanquisher of the Ancient Ones by Magick, Giver of the Spell
 to MARDUK KUROS, a most fierce enemy. His Word is MASHSHAMMASHTI and his
-Seal follows:Downloaded from www.holybooks.com
+Seal follows:
 The Eighteenth Name is SHAZU
 Knows the thoughts of those at a distance, as well as those in the vicinity. Nothing is
 buried in the ground, or thrown into the water, but this Power is aware. His Word is
@@ -2733,7 +2733,7 @@ Reconciler of enemies, silencer of arguments, between two people or between two
 nations, or even, it is said, between two worlds. The scent of Peace is indeed sweet to this
 Power, whose Word is MASHINNANNA and whose seal is this:
 The Twentieth Name is SUHRIM
-Seeks out the worshippers of the Ancient Ones wherever they may be. The Priest whoDownloaded from www.holybooks.com
+Seeks out the worshippers of the Ancient Ones wherever they may be. The Priest who
 sends him on an errand does so at a terrible risk, for SUHRIM kills easily, and without
 thought. His Word is MASHSHANERGAL and his Seal:
 The Twenty-First Name is SUHGURIM
@@ -2743,7 +2743,7 @@ Word is MASHSHADAR and the Seal:
 The Twenty-Second Name is ZAHRIM
 Slew ten thousand of the Hordes in the Battle. A Warrior among Warriors. Can destroy
 an entire army if the Priest so desires. His Word is MASHSHAGARANNU and his Seal:
-The Twenty-Third Name is ZAHGURIMDownloaded from www.holybooks.com
+The Twenty-Third Name is ZAHGURIM
 As ZAHRIM, a most terrible opponent. It is said ZAHGURIM slays slowly, after a most
 unnatural fashion. I do not know, for I have never summoned this Spirit. It is thy risk.
 The Word is MASHTISHADDU and the Seal:
@@ -2754,7 +2754,7 @@ Spirit. His Word is MASHSHANEBBU and his Seal thus:
 The Twenty-Fifth Name is EPADUN
 This is the Lord of all Irrigation and can bring Water from a far place to your feet.
 Possesses a most subtle geometry of the Earth and knowledge of all lands where Water
-might be found in abundance. His Word is EYUNGINAKANPA and his Seal is this:Downloaded from www.holybooks.com
+might be found in abundance. His Word is EYUNGINAKANPA and his Seal is this:
 The Twenty-Sixth Name is ENBILULUGUGAL
 The Power that presides over all growth, and all that grows. Gives knowledge of
 cultivation, and can supply a starving city with food for thirteen moons in one moon. A
@@ -2765,7 +2765,7 @@ harvests. Possesses the knowledge of the metals of the earth, and of the plough.
 is BURDISHU and his seal thus:
 The Twenty-Eighth Name is SIRSIR
 The Destroyer of TIAMAT, hated of the Ancient Ones, Master over the Serpent, Foe of
-KUTULU. A most powerful Lord. His Word is this APIRIKUBABADAZUZUKANPADownloaded from www.holybooks.com
+KUTULU. A most powerful Lord. His Word is this APIRIKUBABADAZUZUKANPA
 and his Seal:
 The Twenty-Ninth Name is MALAH
 Trod the back of the Worm and cut it in twain. Lord of Bravery and Courage, and gives
@@ -2775,7 +2775,7 @@ The Thirtieth Name is GIL
 The Furnisher of Seed. Beloved of ISHTAR, his Power is mysterious and quite ancient.
 Makes the barley to grow and the women to give birth. Makes potent the impotent. His
 Word is AGGABAL and his Seal is thus:
-The Thirty-First Name is GILMADownloaded from www.holybooks.com
+The Thirty-First Name is GILMA
 Founder of cities, Possessor of the Knowledge of Architecture by which the fabled
 temples of UR were built; the creator of all that is permanent and never moves. His Word
 is AKKABAL and his Seal is this:
@@ -2786,7 +2786,7 @@ MASHSHAYEGURRA and his Seal is:
 The Thirty-Third Name is ZULUM
 Knows where to plant and when to plant. Giveth excellent counsel in all manner of
 business and commerce. Protects a man from evil tradesmen. His Word is ABBABAAL
-and his Seal is this:Downloaded from www.holybooks.com
+and his Seal is this:
 The Thirty-Fourth Name is MUMMU
 The Power given to MARDUK to fashion the universe from the flesh of TIAMAT.
 Giveth wisdom concerning the condition of the life before the creation, and the nature of
@@ -2797,7 +2797,7 @@ Giveth tremendous strength, as of ten men, to one man. Lifted the part of TIAMAT
 was to become the Sky from the part that was to become the Earth. His Word is
 ANNDARABAAL and his Seal is:
 The Thirty-Sixth Name is LUGALABDUBUR
-Destroyer of the Gods of TIAMAT. Vanquisher of Her Hordes. Chained KUTULU to theDownloaded from www.holybooks.com
+Destroyer of the Gods of TIAMAT. Vanquisher of Her Hordes. Chained KUTULU to the
 Abyss. Fought AZAG-THOTH with skill. A great Defender and a great Attacker. His
 Word is AGNIBAAL and his Seal is this:
 The Thirty-Seventh Name is PAGALGUENNA
@@ -2807,7 +2807,7 @@ ARRABABAAL and his Seal is this:
 The Thirty-Eighth Name is LUGALDURMAH
 The Lord of the Lofty Places, Watcher of the Skies and all that travels therein. Naught
 traverses the starry element, but that this Power is aware. His Word is
-ARATAAGARBAL and his Seal is this:Downloaded from www.holybooks.com
+ARATAAGARBAL and his Seal is this:
 The Thirty-Ninth Name is ARANUNNA
 Giver of Wisdom, Counsellor to our Father, ENKI, Knower of the Magickal Covenant
 and of the Laws and of the Nature of the Gates. His Word is ARAMANNGI and his Seal
@@ -2819,7 +2819,7 @@ His Word is ARATAGIGI and his Seal is:
 The Forty-First Name is LUGALANNA
 The Power of the Eldest of the Elder Ones, possesses the secret knowledge of the world
 when the Ancient Ones and the Elder Ones and where One. Knows the Essence of the
-Ancient Ones and where it might be found. His Word is BALDIKHU and his Seal is this:Downloaded from www.holybooks.com
+Ancient Ones and where it might be found. His Word is BALDIKHU and his Seal is this:
 The Forty-Second Nam is LUGALUGGA
 Knows the Essence of all Spirits, of the Dead and the Unborn, and the Starry and the
 Earthly, and the Spirits of the Air and the Spirits of the Wind as well. Which things he
@@ -2831,7 +2831,7 @@ the Race of Men and seal the Covenant. His Word is BARERIMU and his Seal is this
 The Forty-Fourth Name is KINMA
 Judge and Lord of the Gods, at whose name they quake in fear. That the Gods may not
 err, this Power was given to oversee their activities, should they be lawful and within the
-nature of the Covenant, for the Gods are forgetful, and very far away. His Word isDownloaded from www.holybooks.com
+nature of the Covenant, for the Gods are forgetful, and very far away. His Word is
 ENGAIGAI and his Seal is this:
 The Forty-Fifth Name is ESIZKUR
 This Spirit possesses the knowledge of the length of Life of any man, even unto the
@@ -2842,7 +2842,7 @@ This Power has been given the Realm of the Fire and the Forge. He keepeth the sh
 point of the Sword and the Lance, and giveth understanding in the working of metals. He
 also raises the Lightning that comes from the Earth, and maketh Swords to appear in the
 Sky. His Word is BAALAGNITARRA and his Seal is this:
-The Forty-Seventh Name is ADDUDownloaded from www.holybooks.com
+The Forty-Seventh Name is ADDU
 Raises storms that fill the entire heavens and causes the Stars to tremble and the very
 Gates of the IGIGI to shake in their stead. Can fill the skies with his brightness, even in
 the darkest hour of the night. His Word is KAKODAMMU and his Seal is this:
@@ -2853,7 +2853,7 @@ BAXTANDABAL and this is his Seal:
 The Forty-Ninth Name is NEBIRU
 The Spirit of the Gate of MARDUK, Manages all things in their ways, and moves the
 crossings of the stars after the fashion known to the Chaldeans. His word is DIRGIRGIRI
-and his Seal is this:Downloaded from www.holybooks.com
+and his Seal is this:
 The Fiftieth Name is NINNUAM
 This is the Power of MARDUK as Lord of All That Is, Judger of Judgements, Decider of
 Decisions, He Who Determines the Laws and the Reigns of Kings. He may not be called,
@@ -2875,7 +2875,7 @@ the Priest will encounter in his Rites are herein described, and their reasons, 
 natures, and Essences. And the Number of the Lines is Sacred, and the Word are Sacred,
 and are most potent charms against the Evil Ones. And surely some Magicians of the
 country do write them on parchment or clay, or on pottery, or in the air, that they might
-be efficacious thereby, and that the Gods will remember the words of the Covenant.Downloaded from www.holybooks.com
+be efficacious thereby, and that the Gods will remember the words of the Covenant.
 I copied these words down in my tongue and kept them faithfully these many years, and
 my own copy will go with me to the place where I will go when my Spirit is torn from
 the body. But heed these words well, and remember! For remembering is the most
@@ -2911,7 +2911,7 @@ The Elder Ones came together
 They disturbed TIAMAT, the Ancient One, as they surged back and forth.
 Yea, they troubled the belly of TIAMAT
 By their Rebellion in the abode of Heaven.
-ABSU could not lessen their clamourDownloaded from www.holybooks.com
+ABSU could not lessen their clamour
 TIAMAT was speechless at their ways.
 Their doings were loathsome unto the Ancient Ones.
 ABSU rose up to slay the Elder Gods by stealth.
@@ -2953,7 +2953,7 @@ Charmed with the spells of ancient sorcery,
 With KINGU as Leader of the Minions.
 Remember!
 ENKI
-Our MasterDownloaded from www.holybooks.com
+Our Master
 Fearing defeat, summoned his Son
 MARDUK
 Summoned his Son
@@ -2998,7 +2998,7 @@ Screamed the ancient incantations
 MARDUK struck again and blew
 An Evil Wind into her body
 Which filled the raging, wicked Serpent
-MARDUK shot between her jawsDownloaded from www.holybooks.com
+MARDUK shot between her jaws
 The Charmed arrow of ENKI's Magick
 MARDUK struck again and severed
 The head of TIAMAT from its body.
@@ -3039,7 +3039,7 @@ And shall their generation come again?
 WE ARE THE LOST ONES
 From a Time before Time
 From a Land beyond the Stars
-From the Age when ANU walked the earthDownloaded from www.holybooks.com
+From the Age when ANU walked the earth
 In company of Bright Angels.
 We have survived the first War
 Between the Powers of the Gods
@@ -3083,7 +3083,7 @@ Wreaker of Pain
 And to invoke her
 The Red Water of Life
 Need be split on a stone
-The stone struck with a swordDownloaded from www.holybooks.com
+The stone struck with a sword
 That hath slain eleven men
 Sacrifices to HUBUR
 So that the Strike ringeth out
@@ -3119,7 +3119,7 @@ Lord of Death
 Those they are
 THEY ARE THE CHILDREN
 BORN OF EARTH
-THAT IN THE CREATIONDownloaded from www.holybooks.com
+THAT IN THE CREATION
 OF ANU WERE SPAWNED.
 The highest walls
 The thickest walls
@@ -3163,7 +3163,7 @@ Through the Caverns of the Earth they creep
 Amid the desolate places of the Earth they lie
 Nowhere are they known
 Not in heaven
-Nor in the EarthDownloaded from www.holybooks.com
+Nor in the Earth
 Are they discovered
 For their place is outside our place
 And between the angles of the Earth
@@ -3208,7 +3208,7 @@ The desolate places where their Rites are performed
 Their habitations
 The haunts of man where a sacrifice has been offered
 Their habitations
-The lands hereDownloaded from www.holybooks.com
+The lands here
 And cities here
 And the lands between the lands
 The cities between the cities
@@ -3248,7 +3248,7 @@ Man is the Key by which
 The Gate if IAK SAKKAK may be flung wide
 By which the Ancient Ones
 Seek their Vengeance
-Upon the face of the EarthDownloaded from www.holybooks.com
+Upon the face of the Earth
 Against the Offspring of MARDUK.
 For what is new
 Came from that which is old
@@ -3285,7 +3285,7 @@ To the Cave, forever unlit
 Where bowls of clay are heaped upon the alter
 Where bowls of dust are the food
 Of residents clothed only in wings
-To ABSU ISHTAR set forth.Downloaded from www.holybooks.com
+To ABSU ISHTAR set forth.
 Where sleeps the dread CUTHALU
 ISHTAR set forth.
 The Watcher
@@ -3327,7 +3327,7 @@ ERESHKIGAL
 Before the Queen of Death
 I will announce Thee.
 And NINNGHIZHIDDA
-Horned SerpentDownloaded from www.holybooks.com
+Horned Serpent
 Approached the Lady ERESHKIGAL
 And said:
 Behold, ISHTAR, Thy Sister
@@ -3365,7 +3365,7 @@ And the Serpent answered
 Thus is, the Covenant of Old, set down before Time,
 The Rules of the Lady of KUTU.
 Enter the First Gate.
-And the Second GateDownloaded from www.holybooks.com
+And the Second Gate
 NINNGHIZHIDDA removed the Wand
 The Wand of Lapis Lazuli he took away
 And ISHTAR asked
@@ -3404,7 +3404,7 @@ Enter the Fifth Gate.
 At the Sixth Gate
 NINNGHIZHIDDA removed the Jewels
 The Jewels around her wrists
-And the Jewels around her ankles he took away.Downloaded from www.holybooks.com
+And the Jewels around her ankles he took away.
 And ISHTAR asked
 Why, NINNKIGAL, hast thou removed my Sixth Jewel?
 And NINKIGAL answered
@@ -3443,7 +3443,7 @@ Against her heart, the demons of the heart!
 Against her feet, the demons of the feet!
 Against her head, the demons of the head!
 Against her entire body, the demons the KUR!
-And the demons tore at her, from every side.Downloaded from www.holybooks.com
+And the demons tore at her, from every side.
 And the ANNUNAKI, Dread Judges
 Seven Lords of the Underworld
 Drew Around Her
@@ -3485,7 +3485,7 @@ He fashioned the KALATURRU, spirit of the Seas,
 To the KURGARRU he gave the Food of Life
 To the KALATURRU he gave the Water of Life
 And to these images he spoke aloud
-Arise, KALATURRU, Spirit of the SeasDownloaded from www.holybooks.com
+Arise, KALATURRU, Spirit of the Seas
 Arise, and set thy feet to that Gate GANZIR
 To the Gate of the Underworld
 The Land of No Return
@@ -3528,7 +3528,7 @@ Unseen Monsters
 Spawned at the Dawn of Ages
 Spawned in the Battle of MARDUK and TIAMAT
 Spawned in HUBUR
-With the Sign of HUBURDownloaded from www.holybooks.com
+With the Sign of HUBUR
 Lead by KINGU . . .
 With haste they fled
 Through the Palace of Death
@@ -3564,7 +3564,7 @@ Upon the corpse
 Hung from a stake
 They directed the Spirit of Life
 INANNA AROSE.
-The Dark Waters trembled and roiled.Downloaded from www.holybooks.com
+The Dark Waters trembled and roiled.
 AZAG-THOTH screamed upon his throne
 CUTHALU lurched forth from his sleep
 ISHNIGARRAB fled the Palace of Death
@@ -3600,7 +3600,7 @@ And went with her out of the Gates
 Looking neither right nor left
 Walking in front and behind
 They went with ISHTAR from the Gate of GANZIR
-Out of the Netherworld they accompanied herDownloaded from www.holybooks.com
+Out of the Netherworld they accompanied her
 And ERESHKIGAL
 Scorned Queen of the Abyss Wherein All Are Drowned Pronounced a Curse
 Solemn and Powerful
@@ -3636,7 +3636,7 @@ The Evil Genius
 The Evil Ensnarer
 The Evil Phantom
 The Evil Devil
-The Evil LarvaeDownloaded from www.holybooks.com
+The Evil Larvae
 Showing no true Signs
 Unto mortal Man.
 AND THE DEAD WILL RISE AND SMELL THE INCENSE!
@@ -3667,7 +3667,7 @@ I AM before ANU and the ANNUNNAKI
 I AM before the Seven SHURUPPAKI
 I AM before all things.
 I AM before ENKI and SHAMMASH
-I AM before all things.Downloaded from www.holybooks.com
+I AM before all things.
 I AM before INANNA and ISHTAR
 I AM before NANNA and UDDU
 I AM before ENDUKUGGA and NINDUKUGGA
@@ -3702,7 +3702,7 @@ offspring may be called and adjured to perform what tasks the priest may deem ne
 in his temple. They were begotten before all ages and dwelt in the blood of KINGU, and
 MARDUK could not altogether shut them out. And they dwell in our country, and
 alongside our generations, though they may not be seen. And this was taught by the
-priests of Babylon, who charged that these formulae may never be revealed to anyoneDownloaded from www.holybooks.com
+priests of Babylon, who charged that these formulae may never be revealed to anyone
 who is not initiated into our ways, for to do so would be the most frightful error.
 Though they dwell beyond the Gate, they may be summoned when MARDUK is not
 watchful, and sleeps, on those days when he has no power, when the Great Bear hangs
@@ -3735,7 +3735,7 @@ things come to the time when they will decay, so also HUMWAWA is the Lord of the
 Future of all that goes upon the earth, and any man's future years may be seen by gazing
 into the very face of this Angel, taking care not to breathe the horrid perfume that is the
 odour of death..
-And this is the Signature of HUMWAWA.Downloaded from www.holybooks.com
+And this is the Signature of HUMWAWA.
 And is HUMWAWA appears to the priest, will not the dread PAZUZU also be there?
 Lord of all fevers and plagues, grinning Dark Angel of the Four Wings, horned, with
 rotting genitalia, from which he howl in pain through sharpened teeth over the lands of
@@ -3746,7 +3746,7 @@ lays hold unto death.
 Know that HUMWAWA and PAZUZU are brothers. HUMAWAW is the eldest, who
 rides upon a silent, whispering wind and claims the flocks for his own, by which sign you
 shall know that PAZUZU will come.
-And this is the Sigil of PAZUZU by which he is constrained to come:Downloaded from www.holybooks.com
+And this is the Sigil of PAZUZU by which he is constrained to come:
 Of all the Gods and Spirits of Abomination, there can be no use or gain to call upon
 AZAG-THOTH, as he is Surely Mad. Rendered sightless in the Battle, he is Lord of
 CHAOS, and the priest can find little use for him. He is also too powerful to control once
@@ -3776,7 +3776,7 @@ when the Bear is slain, and this is in the Month of AIRU. And the Season of LAMA
 the Month of ABU, and that of NATTIG in ARAHSHAMMA and lastly that of USTUR
 in SHABATU. Thus are the Four Spirits of the Four Spaces, and their Seasons; and they
 dwell between the Sun's Spaces, and are not of them, but of the Stars, and, as it is said, of
-the very IGIGI themselves although this is not altogether known.Downloaded from www.holybooks.com
+the very IGIGI themselves although this is not altogether known.
 And to summon these and other Demons, the herb AGLAOPHOTIS must be burnt in a
 new bowl that must be the Evil Times, and at Night.
 And the AKHKHARU may be summoned, which sucketh the blood from a Man, as it
@@ -3794,7 +3794,7 @@ at birth, like unto LAMASHTA, the Queen of Sickness and Misery.
 And the Signs by which these Things may be summoned are these, if the Priest have need
 of them, but know that it is not lawful:
 And this is the Seal of the LALASSU
-And this is the Seal of the LALARTU:Downloaded from www.holybooks.com
+And this is the Seal of the LALARTU:
 And know that the MINU of ENKI is powerful against these, but against all Operations
 of Demonic character, and some of these may be rendered fruitless thereby. Therefore it
 must always be hid.
@@ -3812,7 +3812,7 @@ Men.
 And GELAL rideth upon the Wind, but oftentimes LILIT cometh of the Water. Which is
 why running Water must be used in the Rites, because of the cleanliness thereof.
 And the Sign of GELAL is thus:
-And the Sign of LILIT is thus:Downloaded from www.holybooks.com
+And the Sign of LILIT is thus:
 And XASTUR is a foul demoness who slays Men in their Sleep, and devours that which
 she will. And of her no more may be said, for it is unlawful; but know that the
 worshippers of TIAMAT know her well, and that she is beloved of the Ancient Ones.
@@ -3832,7 +3832,7 @@ be spoken clearly aloud, and not a word changed, else the Spirit of the God may 
 thee, as there is no Food and no Drink where they are.
 And it must be called in a secret place, without windows, or with windows only in one
 place, and that should be in the Northern Wall of the place, and the only light shall be of
-one lamp, set on the altar, and the lamp need not be new, nor the altar, for it is a Rite ofDownloaded from www.holybooks.com
+one lamp, set on the altar, and the lamp need not be new, nor the altar, for it is a Rite of
 Age and of the Ancient Ones, and they care not for newness.
 And the altar should be of a large rock set in the earth, and a sacrifice acceptable unto the
 nature of the God should be made. And at the time of the Calling, the waters of ABSU
@@ -3870,7 +3870,7 @@ IARRUGISHGARRAGNARAB!
 I conjure Thee, O Ancestor of the Gods!
 I summon Thee, Creature of Darkness, by the Works of Darkness!
 I summon Thee, Creature of Hatred, by the Works of Hatred!
-I summon Thee, Creature of the Wastes, by the Rites of the Waste!Downloaded from www.holybooks.com
+I summon Thee, Creature of the Wastes, by the Rites of the Waste!
 I summon Thee, Creature of Pain, by the Words of Pain!
 I summon Thee, and call Thee forth, from Thy Abode in Darkness!
 I evoke Thee from Thy resting-place in the Bowels of the Earth!
@@ -3904,7 +3904,7 @@ GIRME EN!
 Oh, Spirit, who understand thee? Who comprehend Thee?
 Now, there are Two Incantation to the Ancient Ones set down here, which are well
 known to the Sorcerers of the Night, they who make images and burn them by the Moon
-and by other Things. And they burn them by the Moon and by other Things. And theyDownloaded from www.holybooks.com
+and by other Things. And they burn them by the Moon and by other Things. And they
 burn unlawful grasses and herbs, and raise tremendous Evils, and their Words are never
 written down, it is said. But there are. And they are Prayers of Emptiness and Darkness,
 which rob the Spirit.
@@ -3945,7 +3945,7 @@ This sacrifice I offer
 May it be acceptable
 To the Most Ancient Gods!
 IA MASHMASHTI! KAKAMMU SELAH!
-Invocation of the PowersDownloaded from www.holybooks.com
+Invocation of the Powers
 Spirit of the Earth, Remember!
 Spirit of the Seas, Remember!
 In the Names of the Most Secret Spirits of NAR MARRATUK
@@ -3983,7 +3983,7 @@ many things that harm of the life of man. And they fashion images out of wax, an
 flour and honey, and of all the metals, and burn them or otherwise destroy them, and
 chant the civilisations. And they cause plagues, for they summon PAZUZU. And they
 cause madness, for they call AZAGTHOTH. And these Spirits come upon the Wind, and
-some upon the Earth, crawling. And no oil, no powder, suffices to save a man from thisDownloaded from www.holybooks.com
+some upon the Earth, crawling. And no oil, no powder, suffices to save a man from this
 inquity, save that exorcisms handed down and recited by the able Priest. And they work
 by the Moon, and not by the Sun, and by older planets than the Chaldaens were aware.
 And in cords, they tie knows, and each is a spell. And if these knots be found, they may
@@ -4012,7 +4012,7 @@ O Shining Day!
 O Laughing Day!
 O Day of Life, and Love and Luck!
 Seven Oldest, Wisest Ones!
-Seven Sacred, Learned Ones!Downloaded from www.holybooks.com
+Seven Sacred, Learned Ones!
 Be my Guardians, polished Swords
 Be my Watchful, patient Lords
 Protect me from the Rabishu
@@ -4048,7 +4048,7 @@ time, and never the one before the other. Know that the Four beasts of the Space
 the blood of the initiate, each in their own time and season. Know that TIAMAT seeks
 ever to rise to the stars, and when the Upper is united to the Lower, then a new Age will
 come of Earth, and the Serpent shall be made whole, and the Waters will be as One, when
-on high the heavens had not been named.Downloaded from www.holybooks.com
+on high the heavens had not been named.
 Remember to protect the livestock of the village and thy family. The Elder Sign and the
 Sign of the Race. But the Watcher, too, if They be slow. And no sacrifices are to be made
 in that time, for the blood will be split for them that have come in, and will call them.
@@ -4085,7 +4085,7 @@ let Them in, for they have a formulae of which it is unlawful to speak. And thes
 not strong, save at their seasons, when the heavens open up to them and unto their race.
 And there shall forever be War between us and the Race of Draconis, for the Race of
 Draconis was ever powerful in ancient times, when the first temples were built in
-MAGAN, and they drew down much strength from the stars, but now they are asDownloaded from www.holybooks.com
+MAGAN, and they drew down much strength from the stars, but now they are as
 Wanderers of the Wastelands, and dwell in caves and in deserts, and in all lonely places
 where they have set up stones. And these I have seen, in my journeys through those areas
 where the ancient cults once flourished, and where now there is only sadness and
@@ -4112,7 +4112,7 @@ Dawn, for then the Sun rises and the Scorpion has no power, not from the Dawn ti
 Dusk, during which time he is forced back beneath the Earth, for that is the letter of the
 Covenant concerning him, for it is written: He shall not raise his head above the Sun.
 And again: His is the dark times.
-And again: He knows of the Gate, but not the GateDownloaded from www.holybooks.com
+And again: He knows of the Gate, but not the Gate
 And the Scorpion Man has another of his Race, female, that dwells with him there, but of
 her it is not lawful to speak, and she must be banished with the exorcisms should she
 appear to thee, for her touch is Death.
@@ -4149,7 +4149,7 @@ will depart at a touch and leave thee unprotected for the remainder of the Rite,
 although a Circle is a boundary which none can cross, thou wilt find thyself unprepared
 to meet the incredible sights that will greet thee outside.
 Remember also the sacrifices to the Watcher. They must be regular, for the Watcher is of
-a different Race and cares not for thy life, save that he obey thy commands when theDownloaded from www.holybooks.com
+a different Race and cares not for thy life, save that he obey thy commands when the
 sacrifices have been met.
 And forgetting the Elder Sign will surely cause thee much grief.
 And I have seen a Race of Man that worships a Giant Cow. And they come from
@@ -4169,7 +4169,7 @@ GALLA XUL kadbi mu unna te
 DINGIR XUL girbi mu unna te
 I minabi-ene tashbi aba aba-andibbi-esh!
 And this they would chant over a doll of wax as it was burning in their wicked cauldrons.
-And in these things they took great delight, and still do where they are to be found at theirDownloaded from www.holybooks.com
+And in these things they took great delight, and still do where they are to be found at their
 shrines of loathsomeness.
 And I have seen the lands of farmers ravaged by their evil spells, scorched black by flame
 and burning embers that descend from the sky. And that is the Sign that they have been
@@ -4208,7 +4208,7 @@ much afraid and cease their workings for awhile, and their stones will crack and
 Gods be sorely angry with their servants.
 Write the book thou keepest well, and clearly, and when it is time for thee to go out, as it
 is my time now, it will pass into the hands of those who may have the best use of it, and
-who are faithful servants of the Elder Gods, and wilt swear eternal Warfare against theDownloaded from www.holybooks.com
+who are faithful servants of the Elder Gods, and wilt swear eternal Warfare against the
 rebellious demons who would destroy the civilisations of man.
 And if thou knowest the names of they who would harm thee, write them upon figures of
 wax, made in their image, upon which you will make the Curse and melt them in the
@@ -4245,7 +4245,7 @@ I spy thee out
 I cause thy name to be known among men
 I cause they house to be seen amoung men
 I cause thy spells to be heard amoung men
-I cause thy evil perfumes to be smelt amoung menDownloaded from www.holybooks.com
+I cause thy evil perfumes to be smelt amoung men
 I unclothe thy wickedness and evil
 And bring your sorceries to naught!
 It is not I, but NANAKANISURRA
@@ -4284,7 +4284,7 @@ be, in these times and in these places, and is surely a warning to thee to have 
 not to invoke carelessly, but cautiously, and not, under any circumstances, seek carelessly
 to open that Gate to the Outside, for thou can never know the Seasons of Times of the
 Ancient Ones, even though thou can tell their Seasons upon the Earth by the rules I have
-already instructed thee to compute; for their Times and Seasons Outside run uneven andDownloaded from www.holybooks.com
+already instructed thee to compute; for their Times and Seasons Outside run uneven and
 strange to our minds, for are they not the Computors of All Time? Did they not set Time
 in its Place? It were not enough that the Elder Gods (have mercy on Thy servant!) set the
 Wanderers to mark their spaces, for such spaces as existed were the work of the Ancient
